@@ -9,7 +9,6 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on exploring the outdoors.
 - 🤔 I’m looking for help with life
 - 💬 Ask me about where I have been and what I like to do.
-- 📫 How to reach me: aiden.little@student.csulb.edu
 - 😄 Pronouns: He/ him/ Apache Attack Helicopter
 - ⚡ Fun fact: The sun is bright, and you know it.
 
